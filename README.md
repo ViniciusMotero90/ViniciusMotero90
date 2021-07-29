@@ -1,4 +1,4 @@
-### Oi!!! Eu sou o Vinícius Moura de Otero👋
+### Oi!!! Eu sou o Vinícius Moura de Otero :smiley: :smiley: :smiley:
 
 <div>
   <a href="https://github.com/ViniciusMotero90">
